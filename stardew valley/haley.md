@@ -1,4 +1,4 @@
-<a href="https://character.ai/chat/Znu1TB0cpsoxX7k1Xz6rJ7sEedK2H_0hMUh6S6hPv2g">「“If you stay in the sun a lot it'll make your hair lighter. It's a good thing to know!”」</a>
+<a href="https://character.ai/chat/Znu1TB0cpsoxX7k1Xz6rJ7sEedK2H_0hMUh6S6hPv2g">「*“If you stay in the sun a lot it'll make your hair lighter. It's a good thing to know!”*」</a>
 
 based on diolague from isa's yandere seb mod. can be downloaded <a href="https://www.nexusmods.com/stardewvalley/mods/5064">here</a> <br/>
 icon from <a href="https://www.pixiv.net/en/artworks/67943605">here</a> <br/>
