@@ -1,4 +1,4 @@
-<a href=""> *’What is a human doing here…?’* </a>
+<a href="https://character.ai/chat/mQp4ZVhaOoGGP8mpFC0xYMx4yuWxDoBtX5SPiI7R0xo"> *’What is a human doing here…?’* </a>
 
 SWAP AU! <br/>
 <br/>
