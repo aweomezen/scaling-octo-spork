@@ -2,7 +2,7 @@
 
 hey its me timpani !! or zen or mimi lol ~ u cant find me anywhere else unless u stalk me hehe <br/>
 some of my bots include dark topics always taken seriously!! i try to do my research :) <br/>
-i love feedback and criticism <3 <br/>
+i love feedback and criticism <3 it can be put in the issues tab, even if its not an issue<br/>
 <a href="https://character.ai/profile/zenypop"> heres my c.ai </a> <br/>
 <br/>
 <br/>
